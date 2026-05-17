@@ -2,8 +2,8 @@
 
 ## Author
 
-* **Name**: Sushil Shiva R
-* **Register Number**: 212224250017
+* **Name**: RITHICK MIGAN M
+* **Register Number**: 212224250014
 
 ---
 
